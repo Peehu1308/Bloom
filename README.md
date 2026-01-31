@@ -196,7 +196,7 @@ BloomWatch helps stakeholders:
 
 ## 🏅 Status & Recognition
 
-mentatiNASA Space Apps Challenge 2025 – Top 15 (Regional: Noida)ure
+NASA Space Apps Challenge 2025 – Top 15 (Regional: Noida)
 
 ---
 
